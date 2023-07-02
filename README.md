@@ -3,7 +3,9 @@
 - 🌱 I’m currently learning niente
 - 💞️ I’m looking to collaborate wiht silvy anselmi
 - 
-- 📫 How to reach me 35/ 100 iscritti ma tanto non ci arrivo..
+- 📫 How to reach me
+- youtube:Michiamohaaland
+- tiktok:edo.sole
 
 <!---
 EdoardoBorghi/EdoardoBorghi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
